@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nishimura-Lozza
+- 👀 I’m interested in bungo stray dogs <3, fixing my damned python assignments and listening to music (kpop & jpop)
+- 🌱 I’m currently learning how to not be in constant suffering and how to transport my consciouness into another dimension
+- 💞️ I’m looking to collaborate on... plz help me if ur good with python *insert puppy eyes*
+- 📫 How to reach me - email - lozzaspace@gmail.com, discord - trafalgar_d_lozza, insta - lauren_oor_not
+- 😄 Pronouns: she/her (i also have zero standards because fictional people are my only types *sad face*)
+- ⚡ Fun fact: i have a god complex (my bday is the same as shakespeare day and my friend told me i might be a reincarnation of him but his estimated iq is still 60 points above mine *sad face*)
